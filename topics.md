@@ -18,5 +18,8 @@ Topics already made. Automated runs: pick something NOT on this list, then appen
 - Falling into a black hole (Gerald)
 - Popcorn-making mishap (Gerald)
 - Getting sick / how the body fights a virus (Gerald)
+- Why does ice float?
+- What happens if you fall through the Earth?
+- Could zombies be real? (zombie-ant fungus)
 
 ## Automated episodes

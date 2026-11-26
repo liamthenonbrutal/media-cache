@@ -23,3 +23,4 @@ Topics already made. Automated runs: pick something NOT on this list, then appen
 - Could zombies be real? (zombie-ant fungus)
 
 ## Automated episodes
+- 2026-11-26: Why doorknobs shock you / static electricity (Gerald)

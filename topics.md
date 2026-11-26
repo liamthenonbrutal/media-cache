@@ -25,3 +25,4 @@ Topics already made. Automated runs: pick something NOT on this list, then appen
 ## Automated episodes
 - 2026-11-26: Why doorknobs shock you / static electricity (Gerald)
 - 2026-11-26: Why paper cuts hurt so much (Gerald)
+- 2026-11-26: Why onions make you cry (Gerald) — TikTok only; YouTube hit Buffer's 2/day limit

@@ -29,3 +29,4 @@ Topics already made. Automated runs: pick something NOT on this list, then appen
 - 2026-11-26: Why your foot falls asleep / pins and needles (Gerald) — TikTok 11/26; YouTube scheduled 11/28 6:17pm (Buffer 2/day limit)
 - 2026-11-26: Why do we get hiccups? (Gerald) — TikTok 11/26; YouTube scheduled 11/28 12:17pm (Buffer 2/day limit)
 - 2026-11-26: Why do chilis burn? / capsaicin (Gerald) — TikTok 11/26; YouTube scheduled 11/29 12:17pm (Buffer 2/day limit)
+- 2026-11-27: Why hitting your funny bone feels so weird / ulnar nerve (Gerald) — TikTok 11/27; YouTube scheduled 11/27 6:17pm (Buffer 2/day limit)

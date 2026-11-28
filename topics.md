@@ -31,3 +31,4 @@ Topics already made. Automated runs: pick something NOT on this list, then appen
 - 2026-11-26: Why do chilis burn? / capsaicin (Gerald) — TikTok 11/26; YouTube scheduled 11/29 12:17pm (Buffer 2/day limit)
 - 2026-11-27: Why hitting your funny bone feels so weird / ulnar nerve (Gerald) — TikTok 11/27; YouTube scheduled 11/27 6:17pm (Buffer 2/day limit)
 - 2026-11-27: Why your tongue sticks to a frozen pole (Gerald) — TikTok 11/27; YouTube posted 11/28 via vidIQ
+- 2026-11-28: Why does your stomach growl? (Gerald) — TikTok 11/28; YouTube scheduled 11/29 6:17pm (Buffer 2/day limit)
